@@ -1,2 +1,2 @@
 # prymusi
-Zmiany zmiany
+Zmiany zmiany zapisz jeee
